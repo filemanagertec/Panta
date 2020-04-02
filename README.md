@@ -1,5 +1,5 @@
 # Technical Support
-Technical Support:CindyLeung7@qq.com
+Technical Support:chenjintao@shujuhe.com
 
 #   App Privacy Policy and Terms of Use
 This app knows the importance of personal information to you and will do its utmost to protect your personal information. We are committed to maintaining your trust in us and to abide by the following principles to protect your personal information: the principle of consistency of powers and responsibilities, the principle of clear objectives, the principle of choice and consent, the principle of minimum sufficient use, the principle of ensuring security, the principle of subject participation, the principle of openness and transparency, etc. . At the same time, we promise that we will take appropriate security measures to protect your personal information in accordance with the industry's mature security standards. Please read and understand this Privacy Policy before using our products (or services).
